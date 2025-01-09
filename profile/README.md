@@ -1,5 +1,14 @@
 GK Questions in English with Answers: 300+ GK
 
+
+[More GK Questions](https://thecapcutapkpro.xyz/insurance)
+[More GK Questions](https://thecapcutapkpro.xyz/insurance)
+
+[More GK Questions](https://thecapcutapkpro.xyz/insurance)
+
+[More GK Questions](https://thecapcutapkpro.xyz/insurance)
+
+
 General knowledge helps us understand the world better. Here are 300+ GK questions in English with answers. These questions are simple and cover various topics. Each question is followed by its answer.
 
 1. What is the capital of India?
